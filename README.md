@@ -15,6 +15,26 @@ Preview from WIP :
 
 https://youtu.be/ok18YbcC_uw
 
+Explore
+------------------
+<img src="evil_origin_1.png?raw=true" width="600">
+
+Build
+------------------
+<img src="evil_origin_2.png?raw=true" width="600">
+
+Craft
+------------------
+<img src="evil_origin_3.png?raw=true" width="600">
+
+Trade
+-----------------
+<img src="evil_origin_4.png?raw=true" width="600">
+
+Fight
+-----------------
+<img src="evil_origin_5.png?raw=true" width="600">
+
 Intro
 =============================
 
