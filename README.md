@@ -19,23 +19,37 @@ Intro
 =============================
 
 During the longest night among decades,
+
 A dazzling meteor strikes,
+
 with a tremendous power the land of Mellitela,
 
+
 The ecosystem is bruised, a myriad of field crops are destroyed,
+
 In addition, creatures are popping from the womb of earth, 
+
 Annihilating everything on their way like a hurricane,
 
+
 The king Henry II, proud owner of these lands,
+
 is overwhelmed by the disaster,
+
 He observes his people weeping, starving, dying, revolting,
 
+
 Leaving their shelters to join a den of bandit,
+
 Chaos is about to be the new ruler,
+
 But his Majesty has no intention to give up his kingdom,
 
+
 he demands to a small group of volunteers,
+
 to find and settle the source of chaos,
+
 in exchange of a promise of wealth and full autonomy
 
 
